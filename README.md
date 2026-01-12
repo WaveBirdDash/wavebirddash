@@ -1,4 +1,4 @@
-### ``mpanighetti`` 🧑‍💻
+### ``WaveBirdDash`` 🧑‍💻
 
 - 😄 pronouns: he/they
 - 🔭 where to find me: [a website 🌐](https://mario.panighetti.net)
